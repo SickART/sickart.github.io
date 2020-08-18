@@ -1,1 +1,0 @@
-# sickart.github.io
